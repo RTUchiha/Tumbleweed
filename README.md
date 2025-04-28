@@ -1,6 +1,8 @@
 # Why Tumbleweeds Are a Critical Part of Society  
 *by RTUchicha*
 
+![](tumbeweed.png)
+
 Tumbleweeds are not just useless balls of dead grass that roll dramatically across abandoned towns in every western movie ever made. (Except the fact that they are…) They are critical pillars of society, bravely reminding us that even nature can give up sometimes. Without tumbleweeds, we would have no idea when to dramatically squint into the distance or feel existential dread in the middle of a desert.  
 
 ## 1. Free, Environmentally Friendly Alarm Systems  
